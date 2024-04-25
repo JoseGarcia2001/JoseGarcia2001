@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jagarcia7655@gmail.com**
 
-- 📄 Know about my experiences [Curriculum](https://drive.google.com/uc?id=1JTybvweyVNEBuxUb3-QgORipMUEvjTDT&export=download)
+- 📄 Know about my experiences [Curriculum](https://www.linkedin.com/in/joga-dev/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
